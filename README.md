@@ -22,7 +22,7 @@ if im afk or semi-afk w2i please!
 
 
 
-<p align=""
+<p align="center"
 
 ![Untitled79_20250611164629](https://github.com/user-attachments/assets/a945e3e9-44fa-41d9-b0b6-985a0af12e32)
 
