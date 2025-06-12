@@ -22,13 +22,13 @@ if im afk or semi-afk w2i please!
 
 
 
-<p align="center"
+<p align=""
 
 ![Untitled79_20250611164629](https://github.com/user-attachments/assets/a945e3e9-44fa-41d9-b0b6-985a0af12e32)
 
 <p align="center"
 
-soon existing strawpage or rentry (or both)
+[Strawpage!](https://LovinglyAdored.straw.page/)
 
 <p align="center"
 
